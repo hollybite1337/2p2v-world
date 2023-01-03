@@ -17,7 +17,6 @@
  
 ссылка на скачивание реального мира: https://mega.nz/file/MkcGGZ5R#eF5A9oEtogMue4Kh7vuq7X_sgi01QcgS1Nz_gFze2gk 
 
-ссылка на скачивание мира Энда и Ада: временно отсутсвует 
-
+ссылка на скачивание мира Энда и Ада: https://mega.nz/file/QjIVEByD#-SMqMg0QwlQilawZRIiJJ9x2z5i9RSrj5eBuoGevE_c
 
 Так же попрошу добавить звездочу данному репозиторию для его продвижения. Спасибо.
